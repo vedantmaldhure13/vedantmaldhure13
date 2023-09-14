@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vedantmaldhure13
-- 👀 I’m interested in Coding 
+- 👀 I’m die hard passionate for coding
 - 🌱 I have just entered the world of coding , learning C
 - 📫 to reach me, my instagram handle - vedantmaldhure13
 
